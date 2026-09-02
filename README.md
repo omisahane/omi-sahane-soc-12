@@ -1,1 +1,0 @@
-# omi-sahane-soc-12
